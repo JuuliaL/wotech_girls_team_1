@@ -5,3 +5,7 @@
 - Phython 🐍
   
 ## Team members:
+
+- Silvia
+- Marilyn
+- Jul ᓚᘏᗢ
